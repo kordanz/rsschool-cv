@@ -1,1 +1,1 @@
-# rsschool-cv
+https://kordanz.github.io/rsschool-cv/
